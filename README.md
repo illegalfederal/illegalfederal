@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @illegalfederal
-- 👀 I’m interested in CS.
+- 👀 I’m interested in CS,JAVA,PYTHON.
 - 🌱 I am constantly learning new things.
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me on instagram.(@illegalfederal)
